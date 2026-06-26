@@ -1,6 +1,7 @@
 ## HEEYYY!!!
 
 Heya! I'm Dawn Maxine, and my pronouns are she/her
+
 🐞 I’m an incoming freshman in Wilbur Wright College in Chicago!
 
 ♦️ My first game console was the 2DS! My favorite game was Sims 2, a very intriguing game.
