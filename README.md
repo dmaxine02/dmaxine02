@@ -1,10 +1,5 @@
 ## HEEYYY!!!
 
-**dmaxine02/dmaxine02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-
 Heya! I'm Dawn Maxine, and my pronouns are she/her
 🐞 I’m an incoming freshman in Wilbur Wright College in Chicago!
 ♦️ My first game console was the 2DS! My favorite game was Sims 2, a very intriguing game.
